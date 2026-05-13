@@ -1,4 +1,4 @@
-#  
+#  Experience oil empire like never before with oil empire exclusive Scripts, the #1 Script. Includes aimbot and auto-farm for unbeatable performance.
 
 
 
